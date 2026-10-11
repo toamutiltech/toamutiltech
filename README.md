@@ -42,7 +42,7 @@ https://www.getstockara.com.ng
 ### 💰 My Invoice System
 Pay-as-you-use cloud invoicing platform
 
-https://myinvoicesystem.xyz
+https://myinvoicesystem.com.ng
 
 ---
 
